@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **saurabhtiwarickms@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1_QRUrqfzR_pNzDOl_EGBtwgsxE_26_OW/view?usp=share_link](https://drive.google.com/file/d/1_QRUrqfzR_pNzDOl_EGBtwgsxE_26_OW/view?usp=share_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1qmJPuKLQg3hW9rDwyDu7dm5qfHyz5sBS/view?usp=sharing)
 
 - ⚡ Fun fact **Be Passionate to Learnings.**
 
